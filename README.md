@@ -13,6 +13,7 @@ Many independent scientists/researchers were shunned and refused access to the t
 4) Organization is clearly and openly engaged in unethical, deceptive, and HIGHLY ILLEGAL/DANGEROUS activities
 5) Refusal to communicate with independent researchers and scientists and answer important and relevant questions
 6) Highly discriminatiry and highly selective hiring practices to keep non-profit/ tax-exempt status
+7) Refusal to disclose correct and accurate physical address and contact information for the origranization and its entities.
 
 # Google AI/Google Brain
 
