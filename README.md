@@ -2,6 +2,8 @@
 All info about current Artificial Intelligence Conspiracy / Hoax
 
 ## Artificial Intelligence is really a social experiment/ simulation of the real thing. Properly this would be called simulated algorithmic intelligence experiment.
+Many scientists/researchers have noticed that we currently experiencing a simulation. 
+Many independent scientists/researchers were shunned and refused access to the tech/code/theory behind tech used.
 
 # OpenAI
 
