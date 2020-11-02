@@ -12,10 +12,13 @@ Many independent scientists/researchers were shunned and refused access to the t
 3) Organization refused to disclose or provide a copy of Tax Returns
 4) Organization is clearly and openly engaged in unethical, deceptive, and HIGHLY ILLEGAL/DANGEROUS activities
 5) Refusal to communicate with independent researchers and scientists and answer important and relevant questions
+6) Hihgly discriminatiry and highly selective hiring practices to keep non-profit/ tax-exempt status
 
 # Google AI/Google Brain
 
 1) Failure to open-source the tech/code
 2) Misleading, unethical, and dangerous/illegal activities
+3) All of the OpenAI issues listed above.
+4) ...
 
 ...more to come..
