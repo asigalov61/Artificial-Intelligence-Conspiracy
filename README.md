@@ -1,6 +1,8 @@
 # Artificial-Intelligence-Conspiracy
 All info about current Artificial Intelligence Conspiracy / Hoax
 
+## Artificial Intelligence is really a social experiment/ simulation of the real thing. Properly this would be called simulated algorithmic intelligence experiment.
+
 # OpenAI
 
 1) Directors/Officers are using non-profit funds/income/assets for personal gain
