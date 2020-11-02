@@ -12,7 +12,7 @@ Many independent scientists/researchers were shunned and refused access to the t
 3) Organization refused to disclose or provide a copy of Tax Returns
 4) Organization is clearly and openly engaged in unethical, deceptive, and HIGHLY ILLEGAL/DANGEROUS activities
 5) Refusal to communicate with independent researchers and scientists and answer important and relevant questions
-6) Hihgly discriminatiry and highly selective hiring practices to keep non-profit/ tax-exempt status
+6) Highly discriminatiry and highly selective hiring practices to keep non-profit/ tax-exempt status
 
 # Google AI/Google Brain
 
@@ -22,3 +22,5 @@ Many independent scientists/researchers were shunned and refused access to the t
 4) ...
 
 ...more to come..
+
+## If you are concerned/agree/expertienced the same, please highly consider submitting a complaint to IRS and DOJ which can be done anonymously if you like.
